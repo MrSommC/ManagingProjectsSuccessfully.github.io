@@ -21,7 +21,7 @@ Unsicherheiten beseitigt werden. Beispielsweise gilt es vorab zu klären, welche
 bürgen könnte, sollte 
 ebenfalls vor Projektbeginn geklärt werden[^4]. Für diese Herausforderungen und für noch viele Weitere ist Kreativität gefragt. 
 
-Kreativität – oder vielmehr kreatives denken – kann gezielt stimuliert werden. Im folgenden Artikel wird die Kreativitätstechnik „Ideen-Marathon“ vorgestellt werden. Zunächst 
+Kreativität – oder vielmehr kreatives Denken – kann gezielt stimuliert werden. Im folgenden Artikel wird die Kreativitätstechnik „Ideen-Marathon“ vorgestellt werden. Zunächst 
 wird das Grundprinzip des Ideen-Marathons beschrieben, danach werden die Grundregeln der Kreativitätstechnik dargestellt. 
 
 ## Hintergründe zum Ideen-Marathon
